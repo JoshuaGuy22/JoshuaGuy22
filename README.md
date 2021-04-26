@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JoshuaGuy22
+- 👀 I’m interested in computer stuff
+- 🌱 I’m currently learning computer stuff
+- 💞️ I’m looking to collaborate on computer stuff
+- 📫 How to reach me joshua.fryer@mail.com
