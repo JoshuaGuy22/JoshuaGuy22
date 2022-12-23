@@ -2,4 +2,4 @@
 - 👀 I’m interested in computer stuff
 - 🌱 I’m currently learning computer stuff
 - 💞️ I’m looking to collaborate on computer stuff
-- 📫 How to reach me joshuatravisfryer@outlook.com
+- 📫 How to reach me [joshuatravisfryer@outlook.com](https://www.linkedin.com/in/joshuatravisfryer/)
